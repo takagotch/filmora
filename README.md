@@ -2,7 +2,8 @@
 ---
 https://filmora.wondershare.jp/
 
-https://filmora.wondershare.jp/filmorapro-video-editor/
+https://effects.wondershare.jp/user/profile.html
+
 ```
 ```
 
